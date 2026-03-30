@@ -1,1 +1,0 @@
-# ghukasyan_pages
